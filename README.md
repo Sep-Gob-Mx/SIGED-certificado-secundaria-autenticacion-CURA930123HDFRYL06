@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CURA930123HDFRYL06
+CURA930123HDFRYL06
